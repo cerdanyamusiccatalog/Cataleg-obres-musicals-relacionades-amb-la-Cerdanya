@@ -1,0 +1,2 @@
+# Cataleg-obres-musicals-relacionades-amb-la-Cerdanya
+ Conté sardanes, ballets, cançons populars, himnes i música de saló. També obres d’Antoni Degollada Barnola, Issi Fabra Bover, Antoni Monsó Lledós i Pablo Ronsó Font. La majoria d’elles provenen dels fons d’Antoni Degollada i Josep Maria Martí Terrada de l’Arxiu Comarcal de Cerdanya, de l’arxiu de Músics per la Cobla i de la web Boig Sardanista. 
